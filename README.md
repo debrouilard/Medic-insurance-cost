@@ -11,3 +11,4 @@ I genuinely feel unloved
 Noone could love me the way i do
 And noone can reassure someone the way i do
 Noone can be as loyal as me
+for fuck sakes am always feeling shit and shitier everyday noone loves me and noone can reciprocate the thing I do for them.
