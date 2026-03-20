@@ -15,3 +15,4 @@ for fuck sakes am always feeling shit and shitier everyday noone loves me and no
 Noone can ever do that for me
 Noone reassures me the way i do
 I feel SHIT shitier shitiest so idk what i can do to hee
+dara dara dere cuz
