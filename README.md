@@ -36,3 +36,4 @@ i still am chating to lala
 i really wish my uncle had sent me some money
 money to survive
 so i can just pay the money i borrowed the past week
+i already dont have
