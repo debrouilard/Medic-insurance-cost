@@ -33,3 +33,4 @@ to keep each other
 I have always knew that we ashould ty to keep the things we love at all cost but today made it sense deeper had he stayed she wouldnt have dies and he wouldnt have wept
 
 i still am chating to lala
+i really wish my uncle had sent me some money
