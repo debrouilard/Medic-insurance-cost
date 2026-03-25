@@ -34,3 +34,4 @@ I have always knew that we ashould ty to keep the things we love at all cost but
 
 i still am chating to lala
 i really wish my uncle had sent me some money
+money to survive
