@@ -20,6 +20,7 @@ flippin through stations
 i am outclassed and its outrageous
 
 and i will take it all, babydoll
+i have other plans i just dont know what i can o about it
 
 whatever's been weighing you down
 daus
