@@ -17,3 +17,6 @@ I want to have so many clothes girls are jealous of
 Lose weight over the summer break and do something good for my community
 
 Be sexy and rich next year is all i want for my final year in college
+
+
+What i really want is this. i want to have so many clothes and a lot of money y, pink iphone 16 and hp spectre pc, sexy body and i want to be ofcourse 56 kilograms, have some ass and less boobs of maybe fuller ones i accept, My hair grown a little breast length, many shoes (adidases and heels sexy ones) and dorm with Bitu so we can always stay out clubbing drinking and all
