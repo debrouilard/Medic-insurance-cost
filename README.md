@@ -1,11 +1,1 @@
-THINGS I WILL HAVE NEXT YEAR
--Pink iPhone 16
--sexy body
--58kg and 170cm
--HP spectre x 360
--Some booty to shake
--enough money to move out as soon as I graduate
--Dorm with Bitu so we can always go out and drink
--Not eat in firfir tera like at all be filthy rich
--Being disgustingly smart and sexy tiny wait and bigger ass
--Have 3 perfumes, perfumes that smell nice and actually last long on me
+
