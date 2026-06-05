@@ -15,3 +15,5 @@ Actual perfum that smell nice and lasts long you know
 I want to have so many clothes girls are jealous of
 
 Lose weight over the summer break and do something good for my community
+
+Be sexy and rich next year is all i want for my final year in college
